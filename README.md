@@ -1,5 +1,5 @@
 ### Hi there 👋
-![18131](https://github.com/Ramprasad-Bollineni/Ramprasad-Bollineni/assets/84793453/ec221a56-0769-446c-b648-44d25e6ff2ac)
+![18131](https://github.com/Ramprasad-Bollineni/Ramprasad-Bollineni/assets/84793453/ec221a56-0769-446c-b648-44d25e6ff2ac | width=100)
 - 📫 How to reach me: bollineniramprasad22@gmail.com
 
 # Introduction
