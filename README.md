@@ -1,5 +1,5 @@
 ### Hi there 👋
-<P align= "left"><img src="https://github.com/Ramprasad-Bollineni/Ramprasad-Bollineni/blob/main/18131.jpg" width= "600" height "400"</P>
+<P align= "left"><img src="https://github.com/Ramprasad-Bollineni/Ramprasad-Bollineni/blob/main/18131.jpg" width= "800" height "400"</P>
 - 📫 How to reach me: bollineniramprasad22@gmail.com
 
 # Introduction
